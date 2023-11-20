@@ -3,3 +3,5 @@
 ## Links
 
 Event Link: https://a4qworldcongress.com/program#F_M
+
+Recording Link: https://www.youtube.com/watch?v=-McUTz5txb0
